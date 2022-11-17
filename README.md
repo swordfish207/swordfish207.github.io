@@ -5,4 +5,4 @@
 - Shoes
 - Food
 - 
-- ![Ateneo]([image.jpg](https://tse4.mm.bing.net/th?id=OIP.97uWeehzDVNw0RtayWFyMQHaEL&pid=Api&P=0))
+- ![Shoes](https://ns.imgix.net/product/1593411325330_AirJordan1MidSEAmarillo0.jpeg?fit=fill&bg=FFFFFF&trim=color&auto=format,compress&q=90)
