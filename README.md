@@ -1,10 +1,6 @@
 # swordfish207.github.io
 ## Welcome Fisher Here in my github
-## My favorite Songs
-
-1. Best Friends
-2. When I Met You 
-3. Like I'm Gonna Lose You
+## My favorite Singer
 
 **Rex Orange**
 
