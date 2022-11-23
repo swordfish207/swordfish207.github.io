@@ -1,7 +1,6 @@
 # swordfish207.github.io
 ## Welcome Fisher Here in my github
-### My favorite Singer
-
+My favorite Singer
 **Rex Orange**
 
 ![Best Friend](https://mediad.publicbroadcasting.net/p/shared/npr/styles/x_large/nprshared/202001/776471911.jpg)
