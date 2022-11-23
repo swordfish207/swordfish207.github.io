@@ -5,7 +5,7 @@
 **Rex Orange** <br>
 
 ![Best Friend](https://mediad.publicbroadcasting.net/p/shared/npr/styles/x_large/nprshared/202001/776471911.jpg)
-**English musician who combines a way with words and elements of jazz, hip-hop, soul, and bedroom electronica into sophisticated pop.**
+English musician who combines a way with words and elements of jazz, hip-hop, soul, and bedroom electronica into sophisticated pop.
 
 Alexander James O'Connor (born 4 May 1998), known professionally as Rex Orange County, is an English singer, multi-instrumentalist and songwriter. O'Connor rose to prominence in 2017 following multiple features on Tyler, the Creator's Grammy-nominated album Flower Boy, including the single "Boredom". NPR Music journalist Zoë Jones has described O'Connor's music as "a bright blend of hip-hop, jazz, and bedroom pop”.
 
