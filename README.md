@@ -1,7 +1,8 @@
 # swordfish207.github.io
 ## Welcome Fisher Here in my github
-My favorite Singer
-**Rex Orange**
+My favorite Singer<br>
+
+**Rex Orange**<br>
 
 ![Best Friend](https://mediad.publicbroadcasting.net/p/shared/npr/styles/x_large/nprshared/202001/776471911.jpg)
 **English musician who combines a way with words and elements of jazz, hip-hop, soul, and bedroom electronica into sophisticated pop.**
